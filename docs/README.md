@@ -1,6 +1,6 @@
 # Rafael Oliveira Lima Nunes
 
-Em busca de novos conhecimentos.
+Estava presquisando na internet e surgiu em um site a informação que a Heineken estava com uma parceria junto com a DIO, onde oferecia um curso sobre AI gratuitamente, me interessei e vim em busca de novos conhecimentos, como não tenho nenhum conhecimento nesse setor estou tentando ao máximo aprender e me inserrie em um mercado totalmente novo e expansão.
 Atualmente tenho uma empresa no ramo de eventos, onde realizamos montagem e desmontagem de standes a nível de locação, locamos mobiliários, produzimos e aplicamos imagens para serem adesivadas nos estandes, realizamos a criação e idealização do projeto do zero junto com o cliente, passando uma brieffing do que o cliente precisa e construindo fidedignamento esse projeto, estamos desde 2008 crescendo no estado de Pernambuco, possuimos uma carteira de clientes fieis e tendo o respeito nacionamente dos nossos serviços. Pretendo nesse curso aprender mais e mais sobre esse mercado que está crescendo e se tornando um diferencial nas vidas das pessoas. 
 
 
